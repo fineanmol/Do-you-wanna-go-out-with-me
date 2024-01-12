@@ -25,6 +25,4 @@ Feel free to explore and enjoy the romantic ambiance created just for you! 🌟
 
 ## Author
 
-Made with love by [Anmol]
-
-![Heart Emoji](https://example.com/heart-emoji.png)
+Made with love by [Anmol](https://www.instagram.com/fineanmol/) ❤️
